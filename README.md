@@ -1,5 +1,4 @@
-11:45 AM[IM TRYING TO QUIT] Dw bby
-<img width="611" height="615" alt="image" src="https://github.com/user-attachments/assets/f2c04371-4c02-4c64-956f-211a9bdfa55c" />
+<img width="664" height="587" alt="image" src="https://github.com/user-attachments/assets/db16feb5-8f2b-423b-8a4a-219fbca3eb8c" />
 
 
 
