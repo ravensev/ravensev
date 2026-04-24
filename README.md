@@ -4,4 +4,4 @@ $${\color{red}my\ representive\ animals\ are \ ferrets \ and \ ravens, \ }$$
 
 $${\color{red}sign\ ata\ please,, \ }$$
 
-[*testing shit ok*](*https://github.com/magicalgirll*)
+[*testing shit ok*](*github.com/magicalgirll*)
