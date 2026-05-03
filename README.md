@@ -2,8 +2,7 @@ $${\color{red}whatever \ you \ do\ at \ the \ crossroads,\ keep \ going \ forwar
 
 $${\color{red}or\ something\ like\ that. \ }$$
 
-$${\color{red}(i\ was\ never \ really \ good \ at\ endings\)}$$
+[$${\color{red}(i\ was\ never \ really \ good \ at\ endings\)}$$]
 
 
-
-[*my EPIK strawpage*](https://ravensev.straw.page/)
+[*[$${\color{red}(straw\\)}$$]*](https://ravensev.straw.page/)
