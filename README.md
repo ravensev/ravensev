@@ -4,4 +4,4 @@ $${\color{red}or\ something \ like\ that}$$
 
 $${\color{red}i\ was \ never\ really \ good \ at\ endings.}$$
 
-[*DEEVV*](*https://github.com/Americxne-101*)
+bro ts is so hard.
