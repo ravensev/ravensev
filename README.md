@@ -2,4 +2,6 @@ $${\color{red}whatever \ you \ do\ at \ the \ crossroads,\ keep \ going \ forwar
 
 $${\color{red}or\ something \ like\ that}$$
 
-$${\color{red}i\ was \ never\ really \ good \ at\ endings.}$$
+$${\color{red}i\ was \ never\ really \ good \ at\ endings.}
+
+[*name of link*](*link*)
