@@ -1,4 +1,4 @@
-$${\color{red}whatever \ you \ do\ at \ the \ crossroads,\ dont \ turn \ left.\}$$
+$${\color{pink}gee, \ it \ sure\ is \ boring \ around \ here.}$$
 
 
 
