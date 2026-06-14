@@ -1,4 +1,4 @@
-$${\color{#ff5ecc}rmking \ ^ω^}$$ ‎ ‎ ‎
+$${\color{#ff5ecc}rmking}$$ ‎ ‎ ‎
 ‎ 
 
 ‎
