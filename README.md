@@ -1,4 +1,4 @@
-$${\color{#ff87ff} lover \ girl \ by \ laufey \ peak \ illit \ also \ peak }$$ ‎ ‎ ‎
+‎
 ‎ 
 $${\color{#ff87ff} if \ no \ response \ im \ afk \ ok.. }$$
 ‎
