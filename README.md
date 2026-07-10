@@ -1,5 +1,4 @@
-$${\color{#ff87ff}no \ response \ = \ afk}$$‎
+$${\color{#bd96bf}no \ response \ = \ afk}$$‎
 
-<img width="567" height="585" alt="Untitled102_20260614174228" src="https://github.com/user-attachments/assets/6b7338f3-55ee-4e6c-badc-37f905a5130e" />
+<img width="330" height="364" alt="Screenshot 2026-07-10 104924" src="https://github.com/user-attachments/assets/c7b08ee5-dd23-4107-8dd9-69aa9a0925bb" />
 
-$${\color{#ff87ff}graphic \ kinda \ mid \ but \ wtv \ it \ was \ my \ first \ try}$$
