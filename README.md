@@ -1,4 +1,4 @@
-<img width="388" height="164" alt="Untitled12_20260710230543" src="https://github.com/user-attachments/assets/d4a8d937-bb41-4f79-84a6-ce899ea39796" />
+
 
 $${\color{#bd96bf}no \ response \ = \ afk}$$‎
 
