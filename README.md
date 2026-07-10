@@ -4,6 +4,7 @@
 <div align="center">
   
 $${\color{#bd96bf}no \ response \ = \ afk}$$
+
 </div>‎
 
 <div align="center">
