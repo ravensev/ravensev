@@ -6,7 +6,11 @@
 $${\color{#bd96bf}no \ response \ = \ afk}$$
 </div>‎
 
+<div align="center">
+
 $${\color{#bd96bf}header \ made \ by \ rottensua \ on \ pin}$$
+
+<\div>
 
 <div align="center">
 
