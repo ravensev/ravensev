@@ -18,4 +18,3 @@ $${\color{#bd96bf}header \ made \ by \ rottensua \ on \ pin}$$
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31vnq5jp4dourvq7a326veou7wzm&cover_image=true&theme=natemoo-re&show_offline=false&background_color=ee70ff&interchange=false&profanity=false&hide_remaster=false&bar_color_cover=false&bar_color=e8ff75)](https://github.com/kittinan/spotify-github-profile)
-</div>
