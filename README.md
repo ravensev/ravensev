@@ -6,5 +6,3 @@ $${\color{#bd96bf}no \ response \ = \ afk}$$
 
 $${\color{#bd96bf}header \ made \ by \ rottensua \ on \ pin}$$
 
-
-$${\color{#bd96bf}call \ me \ leroy \ if \ u \ dk \ me}$$
