@@ -4,5 +4,3 @@
 
 $${\color{#B8312F}no \ response \ = \ afk}$$
 
-<p align="left">\\ $${\color{#B8312F}no \ response \ = \ afk}$$
-</p>
