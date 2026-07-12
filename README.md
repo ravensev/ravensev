@@ -4,6 +4,5 @@
 
 $${\color{#B8312F}no \ response \ = \ afk}$$
 
-<p align="center">
-// $${\color{#B8312F}no \ response \ = \ afk}$$
+<p align="center">// $${\color{#B8312F}no \ response \ = \ afk}$$
 </p>
