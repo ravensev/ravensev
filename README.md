@@ -1,7 +1,6 @@
-<img width="814" height="294" alt="Untitled13_20260710230943" src="https://github.com/user-attachments/assets/35a2b796-8da4-4366-99b7-461d652ad03e" />
+<img width="254" height="16" alt="image" src="https://github.com/user-attachments/assets/05a7c9b8-2157-4a03-b9fa-e5eab64ec0ce" />
 
-  
-$${\color{#bd96bf}no \ response \ = \ afk}$$
+$${\color{#B8312F}no \ response \ = \ afk}$$
 
 
 $${\color{#bd96bf}header \ made \ by \ rottensua \ on \ pin}$$
