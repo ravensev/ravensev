@@ -2,8 +2,8 @@
 
 
 
-$${\color{#0000}no \ response \ = \ afk}$$
+$${\color{#WHITE}no \ response \ = \ afk}$$
 
 
-$${\color{#0000}i \ block \ freely \ if \ needed \ ok?}$$
+$${\color{#WHITE}i \ block \ freely \ if \ needed \ ok?}$$
 
