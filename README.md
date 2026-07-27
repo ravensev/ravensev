@@ -5,6 +5,7 @@
   
   <img width="206" height="30" alt="image" src="https://github.com/user-attachments/assets/848b61c7-f71d-48f2-9e69-0350fb4810e9" />
 
+
 $${\color{#WHITE}no \ response \ = \ afk}$$
 
 
