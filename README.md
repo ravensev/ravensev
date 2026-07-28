@@ -14,6 +14,7 @@
 $${\color{#A9A9A9}waiting \ for \ something \ to \ happen?}$$
 
 
-![](https://github.com/README.md/ravensev/[https://tenor.com/view/omori-gif-21268641])
+<img width="612" height="616" alt="20260728-2303-33 4822515" src="https://github.com/user-attachments/assets/a1d782ac-ae09-4096-a3d4-1a2c13f51b8a" />
+
 
 
