@@ -11,10 +11,10 @@
 <img width="335" height="30" alt="image" src="https://github.com/user-attachments/assets/977ecd14-6730-429d-b078-387d419c2879" />
 
 
-$${\color{#A9A9A9}waiting \ for \ something \ to \ happen?}$$
+$${\color{#ORANGE}waiting \ for \ something \ to \ happen?}$$
 
 
-<img width="100" height="100" alt="20260728-2303-33 4822515" src="https://github.com/user-attachments/assets/a1d782ac-ae09-4096-a3d4-1a2c13f51b8a" />
+<img width="253" height="307" alt="image" src="https://github.com/user-attachments/assets/a8421f57-641c-49a6-8146-f5e8a75a0c2d" />
 
 
 
