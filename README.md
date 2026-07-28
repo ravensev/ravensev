@@ -13,6 +13,6 @@
 
 $${\color{#WHITE}waiting \ for \ something \ to \ happen?}$$
 
-![](https://github.com/ravensev/[<div class="tenor-gif-embed" data-postid="10875235315546437104" data-share-method="host" data-aspect-ratio="0.893574" data-width="100%"><a href="https://tenor.com/view/omori-sunny-gif-10875235315546437104">Omori Sunny GIF</a>from <a href="https://tenor.com/search/omori-gifs">Omori GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>)
+![](https://github.com/ravensev/[https://tenor.com/view/omori-gif-21268641)
 
 
