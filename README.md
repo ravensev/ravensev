@@ -2,17 +2,11 @@
 
 <img width="146" height="30" alt="image" src="https://github.com/user-attachments/assets/c754d224-faf8-4670-aaf3-8f92d78d4ad9" />
 
-@title-town
 
 <img width="206" height="30" alt="image" src="https://github.com/user-attachments/assets/848b61c7-f71d-48f2-9e69-0350fb4810e9" />
 
-@pt-walk-of-fame
-
 <img width="335" height="30" alt="image" src="https://github.com/user-attachments/assets/977ecd14-6730-429d-b078-387d419c2879" />
 
-@pt-hall-of-media
-
-& cutest ponies @pt-fashion
 
 $${\color{#WHITE}no \ response \ = \ afk}$$
 
