@@ -13,6 +13,6 @@
 
 $${\color{#WHITE}waiting \ for \ something \ to \ happen?}$$
 
-(https://github.com/ravensev/[https://tenor.com/view/omori-sunny-gif-10875235315546437104)
+![](https://github.com/ravensev/[https://tenor.com/view/omori-sunny-gif-10875235315546437104)
 
 
