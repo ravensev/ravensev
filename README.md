@@ -11,7 +11,7 @@
 <img width="335" height="30" alt="image" src="https://github.com/user-attachments/assets/977ecd14-6730-429d-b078-387d419c2879" />
 
 
-$${\color{#WHITE}waiting \ for \ something \ to \ happen?}$$
+$${\color{#GRAY}waiting \ for \ something \ to \ happen?}$$
 
 ![](https://github.com/ravensev/[https://tenor.com/view/omori-gif-21268641)
 
