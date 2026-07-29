@@ -14,7 +14,7 @@
 $${\color{#ORANGE}waiting \ for \ something \ to \ happen?}$$
 
 
-<img width="23" height="35" alt="image" src="https://github.com/user-attachments/assets/a8421f57-641c-49a6-8146-f5e8a75a0c2d" />
+<img width="100" height="200" alt="image" src="https://github.com/user-attachments/assets/a8421f57-641c-49a6-8146-f5e8a75a0c2d" />
 
 
 
