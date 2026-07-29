@@ -11,7 +11,7 @@
 <img width="335" height="30" alt="image" src="https://github.com/user-attachments/assets/977ecd14-6730-429d-b078-387d419c2879" />
 
 
-$${\color{#ORANGE}waiting \ for \ something \ to \ happen?}$$
+$${\color{##FFA500}"pratice \ makes \ perfect, \ sunny!}$$
 
 
 <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/a8421f57-641c-49a6-8146-f5e8a75a0c2d" />
