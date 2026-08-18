@@ -1,4 +1,4 @@
-<img src="https://github.com/user-attachments/assets/b5b117a3-b731-43c3-a603-0da7be18cd30" />" alt="Description" style="display: block; margin-left: auto; margin-right: auto;" width="30">
+<img width="900" height="30" alt="pink152" src="https://github.com/user-attachments/assets/9959a1e0-79f6-4315-bf9b-c2b31881d2ea" />
 
 $${\color{#F4C2C2}i\ dont\ play\ ponytown\ often\ anymore..}$$
 
