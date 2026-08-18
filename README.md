@@ -12,6 +12,12 @@ $${\color{#F4C2C2}i\ do\ not\ give\ perms\ to \ screenshot \ or \ copy \ my \ po
 $${\color{#f4c2c2} blinkies\ !!}$$
 
 
+<img width="150" height="20" alt="p30" src="https://github.com/user-attachments/assets/deb902d0-728e-46c1-80a2-51ccee34d553" /> <img width="150" height="20" alt="p10" src="https://github.com/user-attachments/assets/2cfa80dc-1c72-41dd-983f-908d6cd8c585" /> <img width="150" height="20" alt="p8" src="https://github.com/user-attachments/assets/42d3cd64-9493-40f2-a6d5-b47b5fa33fd8" /> <img width="150" height="20" alt="p13" src="https://github.com/user-attachments/assets/32b52625-44de-415a-b1e1-46a6be4ae1e6" /> <img width="150" height="20" alt="p11" src="https://github.com/user-attachments/assets/2b3a2ce5-69fc-4eb5-9b76-736dd064c070" /> <img width="150" height="20" alt="p2" src="https://github.com/user-attachments/assets/23d68ccb-78e6-4312-baae-93fdb7b35754" />
+
+
+
+
+
 
 
 
