@@ -1,11 +1,11 @@
 <img width="1000" height="50" alt="pink152" src="https://github.com/user-attachments/assets/9959a1e0-79f6-4315-bf9b-c2b31881d2ea" /> 
 
 $${\color{#F4C2C2}i\ dont\ play\ ponytown\ often\ anymore..}$$ 
-<img width="20" height="40" alt="pi140" src="https://github.com/user-attachments/assets/b6e08ed7-df9a-4aca-a35f-bd97f46c3f2a" />
 
 
 
-$${\color{#F4C2C2}i\ do\ not\ give\ perms\ to \ screenshot \ or \ copy \ my \ ponies..}$$ <img width="20" height="20" alt="pi140" src="https://github.com/user-attachments/assets/8b83cbb0-c8e0-4da0-9c6c-8e50c70ce801" />
+
+$${\color{#F4C2C2}i\ do\ not\ give\ perms\ to \ screenshot \ or \ copy \ my \ ponies..}$$ 
 
 
 
