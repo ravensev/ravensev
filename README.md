@@ -2,7 +2,12 @@
 
 $${\color{#F4C2C2}i\ dont\ play\ ponytown\ often\ anymore..}$$ 
 
-<img width="53" height="18" alt="pink14" src="https://github.com/user-attachments/assets/44da5e6f-b7a4-4a61-9c1d-8eb812430aa4" /> <img width="47" height="18" alt="pink15" src="https://github.com/user-attachments/assets/02e87a7b-cfce-4111-991c-0288a31b323b" /> <img width="47" height="18" alt="pink20" src="https://github.com/user-attachments/assets/0af1d796-c5a1-486a-99c6-6d50326bea73" />
+<img width="53" height="18" alt="pink14" src="https://github.com/user-attachments/assets/44da5e6f-b7a4-4a61-9c1d-8eb812430aa4" /> <img width="47" height="18" alt="pink15" src="https://github.com/user-attachments/assets/02e87a7b-cfce-4111-991c-0288a31b323b" /> <img width="47" height="18" alt="pink20" src="https://github.com/user-attachments/assets/0af1d796-c5a1-486a-99c6-6d50326bea73" /> <img width="53" height="18" alt="xeca50" src="https://github.com/user-attachments/assets/a11cc7e7-0fb6-471e-b178-19f9804f3a26" /> <img width="61" height="18" alt="vsql90" src="https://github.com/user-attachments/assets/82899888-6d6f-47c0-a630-130768cf4584" /> <img width="40" height="18" alt="vj5lhq" src="https://github.com/user-attachments/assets/ee49b279-d0b8-47e8-b7b2-3a5260cfa701" /> <img width="67" height="18" alt="bc2yau" src="https://github.com/user-attachments/assets/8654ae4c-6cc1-4064-b6f9-56208f14237d" /> <img width="73" height="18" alt="v5q052" src="https://github.com/user-attachments/assets/875e0ab6-9545-4967-9f0f-86b279420099" />
+
+
+
+
+
 
 
 $${\color{#F4C2C2}hazbin \ hotel \ and \ helluva \ boss \ fans \ STRICTLY \ dni.}$$ 
