@@ -10,7 +10,7 @@ $${\color{#F4C2C2}i\ dont\ play\ ponytown\ often\ anymore..}$$
 
 
 
-$${\color{#F4C2C2}hazbin \ hotel \ and \ helluva \ boss \ fans \ STRICTLY \ dni.}$$ 
+$${\color{#F4C2C2}blacklist \ ; \ r3zzy-th3-k1ng \ reason \ ; \ harassment \ .}$$ 
 
 
 
